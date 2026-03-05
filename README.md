@@ -1,16 +1,26 @@
-## Hi there 👋
+https://i.pinimg.com/1200x/20/cb/f5/20cbf53c06188ea7041f41bf1707e346.jpg
+---
 
-<!--
-**powerSource666/powerSource666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
+``𝐹𝐹𝒯𝐼 !!``
+---
+• 𝑝𝑎𝑛𝑠𝑒𝑥𝑢𝑎𝑙 + 𝑝𝑜𝑙𝑦
 
-Here are some ideas to get you started:
+• 𝑚𝑎𝑠𝑠𝑖𝑣𝑒 𝑓𝑙𝑖𝑟𝑡 &amp; 𝑤𝑖𝑙𝑙 𝑁𝑂𝑇 𝑟𝑒𝑓𝑟𝑎𝑖𝑛
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• 𝑎𝑐𝑡𝑖𝑣𝑒 𝑟𝑜𝑏𝑙𝑜𝑥 𝑝𝑙𝑎𝑦𝑒𝑟 + 𝑠𝑒𝑚𝑖 𝑎𝑐𝑡𝑖𝑣𝑒 𝑝𝑡 𝑝𝑙𝑎𝑦𝑒𝑟
+
+• 𝑠𝑒𝑚𝑖-𝑙𝑖𝑡 𝑡𝑜 𝑙𝑖𝑡 𝑟𝑝𝑒𝑟
+
+• 𝑢𝑠𝑢𝑎𝑙𝑙𝑦 𝑖𝑐 𝑚𝑎𝑗𝑜𝑟𝑖𝑡𝑦 𝑜𝑓 𝑡ℎ𝑒 𝑡𝑖𝑚𝑒, 𝑑𝑒𝑝𝑒𝑛𝑑𝑖𝑛𝑔 𝑜𝑛 𝑠𝑘𝑖𝑛
+
+• ℎ𝑦𝑝𝑒𝑟𝑓𝑖𝑥𝑎𝑡𝑜𝑟 . 𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡 𝑙𝑖𝑠𝑡𝑒𝑑 𝑖𝑛 𝑜𝑟𝑑𝑒𝑟 𝑜𝑓 ℎ𝑜𝑤 𝑚𝑢𝑐ℎ 𝑖'𝑚 𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡𝑒𝑑:
+- 𝐻𝐻/𝐻𝐵
+- 𝑊𝑎𝑟𝑟𝑖𝑜𝑟 𝐶𝑎𝑡𝑠
+- 𝐸𝑃𝐼𝐶: 𝑡ℎ𝑒 𝑚𝑢𝑠𝑖𝑐𝑎𝑙
+- 𝐷𝑒𝑙𝑡𝑎𝑟𝑢𝑛𝑒/𝑈𝑛𝑑𝑒𝑟𝑡𝑎𝑙𝑒
+- 𝐿𝑎𝑐𝑘𝑎𝑑𝑎𝑖𝑠𝑦
+
+• 𝑦𝑎𝑝𝑝𝑒𝑟 + »𝑙𝑖𝑠𝑡𝑒𝑛𝑒𝑟«
+
+• 𝑒𝑚𝑝𝑙𝑜𝑦𝑒𝑑 ; 𝐶𝑆𝑇, 𝐴𝑀𝐸𝑅𝐼𝐶𝐴𝑁 𝑇𝐼𝑀𝐸𝑍𝑂𝑁𝐸
