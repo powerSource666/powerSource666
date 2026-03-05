@@ -1,5 +1,3 @@
-https://i.pinimg.com/1200x/20/cb/f5/20cbf53c06188ea7041f41bf1707e346.jpg
----
 
 ---
 ``𝐹𝐹𝒯𝐼 !!``
